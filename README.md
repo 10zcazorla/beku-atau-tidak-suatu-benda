@@ -1,0 +1,1 @@
+# beku-atau-tidak-suatu-benda
